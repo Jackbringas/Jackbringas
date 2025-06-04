@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **AI**
 
-- 📫 How to reach me **jacquelinebringas@outlook.com**
+- 📫 How to reach me **jackbringas@outlook.com**
 
 - 📄 Know about my experiences [https://app.flowcv.com/resume/customization](https://app.flowcv.com/resume/customization)
 
