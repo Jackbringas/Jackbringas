@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jackbringas@outlook.com**
 
-- 📄 Know about my experiences [https://app.flowcv.com/resume/customization](https://app.flowcv.com/resume/customization)
+- 📄 Know about my experiences https://flowcv.com/resume/l16w0uo26pqb
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
